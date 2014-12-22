@@ -35,18 +35,28 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The blinde-mans sermon: or confutation of the blinde Pharises. By Thomas Granger, preacher of the wo
+
+1. TO THE WORſhipful, and my very good friend, Mr. Charles Leuenthorpe, Student in Chriſts Colledge in Cambridge.
+
 #####Body#####
 
-1. I. Wee know.
+1. THE BLINDE-MANS Sermon.
 
-1. Vſe.
+    _ I. Wee know.
 
-1. The Doctrine, [God heareth not ſinners.]
+    _ Vſe.
 
-1. Obiection.
+    _ The Doctrine, [God heareth not ſinners.]
 
-1. Anſwere.
+    _ Obiection.
+
+    _ Anſwere.
+
+1. A Godly Prayer to be ſaid at all times, eyther in publicke, or priuate.
+
+1. Thankeſgiuing before meate.
+
+1. Thankeſgiuing after meate.
 
 **Types of content**
 
